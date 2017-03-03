@@ -1,2 +1,2 @@
 # iSing
-our project - Minneapolis, Alison, Sujatha, Wid
+our project - Mihnea, Alison, Sujatha, Wid
